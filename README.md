@@ -1,133 +1,81 @@
-Palesa Bella Ditshego – Career Portfolio
+Palesa Bella Ditshego
 
-Cell No: 078 522 0865  
- Email: palesaditshegoss@gmail.com  
-Location: Tsakane, Gauteng, South Africa  
+Career Portfolio | Electrical Engineering & Workplace Experience
 
-
+Location: Tsakane, Gauteng, South Africa
 
 About Me
 
-I am a customer-focused and results-driven professional with experience in customer service, client relations, financial services, collections, and electrical engineering.
+I am Palesa Bella Ditshego, a customer-focused and results-driven professional with experience in customer service, client relations, financial services, collections, and electrical engineering.
 
-I have a strong ability to communicate effectively with clients, resolve problems, and deliver high-quality service while maintaining professionalism and compliance. I am also a qualified electrician with practical experience in installation, maintenance, and fault finding.
+I have developed strong communication, problem-solving, and client relationship skills, with a commitment to delivering high-quality service while maintaining professionalism and compliance with applicable procedures and requirements.
 
+As a qualified electrician with an electrical engineering background, I am interested in applying my technical knowledge, practical skills, and professional experience in a suitable workplace environment. I am committed to continuous learning, workplace safety, teamwork, and developing my electrical competencies through practical exposure.
 
+Professional Background
 
-Professional Summary
+My professional background combines customer-facing responsibilities with an interest and qualification in the electrical field.
 
-- Customer service and client relations specialist  
-- Experience in outbound and inbound customer engagement  
-- Strong background in collections and financial services  
-- Qualified electrician with trade test certification  
-- Excellent communication and problem-solving skills  
-- Able to work in high-pressure, target-driven environments  
+My experience includes:
 
+* Customer service and client relations
+* Communication and problem-solving
+* Financial services and collections
+* Professional conduct and compliance
+* Electrical engineering and electrician-related competencies
 
+Core Competencies
 
-Key Skills
+Customer Service and Client Relations
 
-- Customer Service & Client Experience  
-- Client Communication & Relationship Building  
-- Collections & Client Follow-ups  
-- Conflict Resolution & Objection Handling  
-- CRM Systems & Data Capturing  
-- Microsoft Office (Word, Excel, Outlook)  
-- Electrical Installation & Maintenance  
-- Fault Finding & Repairs  
-- Compliance & Safety Standards  
+* Effective communication with clients
+* Responding to enquiries and resolving problems
+* Maintaining professional relationships
+* Delivering quality customer service
 
+Financial Services and Collections
 
+* Professional client engagement
+* Following established procedures
+* Maintaining confidentiality and professional standards
 
-Technical Electrical Skills
+Electrical Engineering
 
-- Wiring systems and circuit design  
-- Electrical fault finding and maintenance  
-- Single-phase and three-phase systems  
-- Motors and AC machines  
-- Circuit breakers, relays, and contactors  
-- Reading electrical diagrams and schematics  
-- Preventative maintenance and inspections  
+* Electrical qualification and technical development
+* Application of relevant electrical knowledge
+* Commitment to safe working practices
+* Willingness to develop practical workplace competencies
 
-
-
-Work Experience
-
-Financial Advisor (Outbound Sales)  
-
-Metropolitan Life | April to November  
-
-- Conducted outbound client calls  
-- Explained financial products and ensured compliance  
-- Built strong client relationships  
-- Handled objections and closed sales  
-- Maintained accurate client records  
-
-
-
-Collections Agent  
-
-Trace Management Solutions | Oct 2019 to Aug 2022  
-
-- Traced debtors using SmartTrace and credit bureau systems  
-- Captured and updated client data  
-- Conducted professional follow-ups  
-- Maintained compliance and confidentiality  
-
-
-
-Apprentice Electrician  
-
-Izibuko The Bridge | 2017-2019  
-
-- Completed electrical trade training  
-- Performed installations, repairs, and maintenance  
-- Worked with electrical systems and machinery  
-- Conducted inspections and fault finding  
-- Followed safety standards and procedures  
-
-
+Specific electrical tasks, tools, equipment, and practical experience will be added once verified against my qualifications and training records.
 
 Qualifications
 
-- Trade Test: Electrician (QCTO Section 26D) in 2019  
-- Grade 12 at Buhlebemfundo Secondary School in 2012  
+Qualified Electrician
 
+Further details of my electrical qualifications, training, assessment results, and practical experience will be included as the relevant records are compiled.
 
+Career Objectives
 
-Additional Certifications
+My objective is to contribute to a professional organisation where I can apply my existing skills, gain relevant workplace experience, strengthen my electrical competencies, and continue developing towards long-term career growth.
 
-- Counterbalance Lift Truck (NQF Level 3): 2022  
-- Mine Health & Safety (NQF Level 2): 2022  
+I am interested in suitable opportunities related to electrical work, workplace exposure, electrical maintenance, and technical development, subject to my qualifications and the requirements of the employer.
 
+Portfolio Contents
 
+This portfolio will be updated with relevant supporting documents, including:
 
-Professional Strengths
+* Curriculum Vitae (CV)
+* Electrical qualifications and certificates
+* Electrical training and assessment records
+* Practical projects and technical evidence
+* Workplace experience and references, where available
 
-- Strong communication and interpersonal skills  
-- Customer-focused and solution-driven  
-- Attention to detail and accuracy  
-- Ability to work under pressure  
-- Reliable, disciplined, and professional  
+Contact Information
 
+Email: palesaditshegoss@gmail.com
 
+Location: Tsakane, Gauteng, South Africa
 
-Documents Included in This Portfolio
+---
 
-- CV  
-- Certified ID Copy  
-- Qualifications  
-- Certificates  
-- Supporting Documents  
-
-
-
-Career Objective
-
-To secure an opportunity where I can contribute my skills in customer service, financial services, or electrical work while continuing to grow professionally and gain valuable industry experience.
-
-
-
-References
-
-Available on request
+This portfolio presents my professional background, qualifications, skills, and career development. Supporting evidence will be added as it becomes available.
